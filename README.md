@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Pawviet
+- 👀 I’m interested in game, code and design
+- 🌱 I’m currently learning game programming, game design, and website development
+- 💞️ I’m looking to collaborate on open-source website projects and indie games
+- 📫 How to reach me vieetphat1804@gmail.com, 
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I love Japanese culture, especially manga and games
